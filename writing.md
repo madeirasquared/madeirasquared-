@@ -4,6 +4,9 @@ title: writing
 permalink: /writing
 ---
 
+**the guardian** 
+I went all the way to Akaroa to learn about [blue pāua pearls](https://www.theguardian.com/world/2025/may/24/shimmering-with-an-opal-shine-new-zealands-unique-blue-pearls-face-threat-of-warming-seas) and I also took some nice photos! 
+
 **writing for the spinoff**
 
 I have written so many pieces for The Spinoff but these are some of my favourites and/or crowd favourites. I might add some of my favourite pieces from beloved student magazine Salient one day too. 
